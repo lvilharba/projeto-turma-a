@@ -13,5 +13,8 @@ Telefone: xxxxxxxxx
 
 E-mail: xxxxxxxxxxx
 
-
 --------
+# Experiência
+- Jogador caro
+- Pegador de idosas ricas
+- Diretor de filme adulto
